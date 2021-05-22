@@ -23,8 +23,7 @@
               YOU HEARD ABOUT HORSE PASTE NOW FIND OUT HOW IT CAN CHANGE
               YOUR LIFE, YOUR PAST, AND YOUR SOUL.<br>
               ASK ABOUT FRANCHISE OPTIONS AND PUMP AND DUMP SCHEMES. <br>
-              <h1 class="headline marching-ants marching"> limp
-                sickness!, HORSE PASTE,<br>
+              <h1> limp sickness!, HORSE PASTE,<br>
                 Stay hung, HUNG LIKE HORSE<br>
                 Sturdy and Turgid</h1>
             </td>
